@@ -1,2 +1,0 @@
-# trabalho-escolar
-trabalho escolar
